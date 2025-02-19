@@ -4,7 +4,7 @@
 ### Contact information:
   **UAE phone number**: +971585178419<br>
   **Mail**: dzmitry.ananyeu@gmail.com<br>
-  **Linkedin**: [**Linkedin**](https://www.linkedin.com/in/dmitry--ananyev/)
+  **LinkedIn**: [**LinkedIn**](https://www.linkedin.com/in/dmitry--ananyev/)
 
 ---
 
